@@ -1,6 +1,1 @@
-(ง︡'-'︠)ง
-
-<!---
-rebeccabartels/rebeccabartels is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+101010010111101010100010101010111010101001
